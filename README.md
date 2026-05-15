@@ -10,4 +10,8 @@ La presidenta del directorio de ComunidadMujer, María Olivia Recart, destacó q
 
 El estudio establece que el __trabajo doméstico y de cuidados no remunerado equivale al 19,2% del PIB Ampliado de Chile (2023), lo que lo convierte en el mayor sector económico del país; y el aporte de las mujeres a esta actividad económica representa el 65,2% del valor total,__ equivalente al 12,5% del PIB Ampliado.  
 
-#### Me parece súper importante hablar de esto ya que tomando en cuenta la información, es una labor que sostiene a un país entero desde la invisibilidad. 
+#### Me parece súper importante hablar de esto ya que tomando en cuenta la información, es una labor que sostiene a un país entero desde la invisibilidad.  
+
+### Trabajo No Remunerado Del Hogar (TNR); Conceptos asociados  
+__Invisibilización:__ La invisibilización es el proceso cultural y sociopolítico mediante el cual grupos de poder hegemónicos omiten, marginan o desvalorizan a ciertos sectores sociales (como mujeres, minorías étnicas o disidencias). Se manifiesta a través del lenguaje, la discriminación y la omisión en las políticas públicas, negando la existencia y aportes de estas comunidades.  
+__Dependencia:__ Relación de necesidad constante hacia una sustancia, actividad o vínculo emocional, que se mantiene aunque esté provocando consecuencias negativas.
