@@ -2,7 +2,7 @@
 
 ## Trabajo No Remunerado Del Hogar (TNR)  
 
-![Banner](https://i.pinimg.com/736x/be/35/02/be3502efceb4e4145057455b95ed5c75.jpg)
+[![Banner](https://i.pinimg.com/736x/be/35/02/be3502efceb4e4145057455b95ed5c75.jpg)](https://cl.pinterest.com/pin/585186545373271588/)
 
 En esta solemne me gustaría hablar de el trabajo no remunerado del hogar (TNR) comprende las labores domésticas y de cuidados realizadas sin salario, esenciales para el bienestar familiar y el funcionamiento económico.  
 
